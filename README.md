@@ -36,6 +36,7 @@ Come see us today and get the finest belts in all of North Texas!
 - Diamond
 - Triangle
 - Round
+
 **Extra Size Buckles Available at a higher cost!**
 
 
